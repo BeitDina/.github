@@ -12,7 +12,7 @@
 -->
 - 👋 Hi, I’m Florin Ciprian Bodin the formator president of this organisation.
 - 👀 The Institute is introducing Digital Paleography in countries from Easten Europe and is publishing digital manuscripts with translations.
-- 🌱 To participate currently You need to learn Ancient Aramaic, Ancient Hebrew, and Ancient Greek.
+- 🌱 To participate currently You need to learn Ancient Aramaic, Ancient Hebrew, and Ancient Greek. You need to participate at Conquest for Ocupation of Positions, to participate in a team that continues advanced studies at one university from Israel were we can colaborate and translate the studies until we have the univrrsity grades neccesary to also start a faculty. 
 - 💞️ If you are looking to collaborate on the fundation of the International Institute of Biblical Archaeology and Linguistic Research and to make an office in Your country or language area, You can start by showing online how You can help us at any project. 
 - 📫 You can contribute to one project online or contact me via contact@beitdina.net
 
